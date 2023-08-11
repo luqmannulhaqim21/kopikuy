@@ -1,1 +1,0 @@
-# kopikuy# kopikuy
